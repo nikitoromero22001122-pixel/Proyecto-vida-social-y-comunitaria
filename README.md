@@ -1,1 +1,0 @@
-# Proyecto-vida-social-y-comunitaria
